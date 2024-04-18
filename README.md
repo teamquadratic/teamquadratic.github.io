@@ -1,0 +1,2 @@
+# teamquadratic.github.io
+ok
